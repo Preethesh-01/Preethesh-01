@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am a student<br>🌱I'm currently learning in SDM College (Autonomous)<br>Ujire
+I am a student<br>🌱I'm currently learning in Yenepoya (Deemed to be University)
 
 
 ## 🌐 Socials:
